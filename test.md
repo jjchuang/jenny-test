@@ -1,3 +1,3 @@
 Creating a new file
 
-I hopez there iz no typoz
+I hope there are no typos.
